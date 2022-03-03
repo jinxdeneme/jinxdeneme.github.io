@@ -1,0 +1,2 @@
+# jinxdeneme.github.io
+deneme
